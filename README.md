@@ -24,7 +24,7 @@ I'm always open to collaborating on interesting projects or discussing new ideas
 
 - LinkedIn : https://www.linkedin.com/in/manish-khopade-5568b02a9?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
 - Instagram : https://www.instagram.com/_manish_khopade_deshmukh_?igsh=NnZpZHgwMzAwNGZv
-- Facebook : Manish Khopade 
+- Facebook : https://www.facebook.com/manish.khopade.35?mibextid=ZbWKwL 
 - Email: manishkhopade2023@gmail.com
 - Contact no : 9834776399
 
